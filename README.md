@@ -27,4 +27,5 @@ Now the most important part, How to get the dream Job in Bangalore?
 -------------------------------Follow----------------------------------------
 
 WhatsApp - +91-7351041220 
-Email-sn.gurukul24.7uk@gmail.com
+
+Email- sn.gurukul24.7uk@gmail.com
