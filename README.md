@@ -24,6 +24,7 @@ Now the most important part, How to get the dream Job in Bangalore?
 3.how to start the job with the package of 20k to 25k. 
 
 
--------------------------------Follow-------------------------------------------------------- 
+-------------------------------Follow----------------------------------------
+
 WhatsApp - +91-7351041220 
 Email-sn.gurukul24.7uk@gmail.com
